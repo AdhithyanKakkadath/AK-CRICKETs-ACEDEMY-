@@ -1,2 +1,2 @@
-# AK-CRICKETs-ACEDEMY-
+# AK-CRICKET-ACEDEMY-
 Everyone can learn cricket
